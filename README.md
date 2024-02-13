@@ -1,4 +1,4 @@
-# silicate EP by abominable
+# Silicate EP by abominable
 
 ## Track listing
 1. Pyrope
